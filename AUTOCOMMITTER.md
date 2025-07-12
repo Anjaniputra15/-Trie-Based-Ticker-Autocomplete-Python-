@@ -1,1 +1,1 @@
-The inventor of the frisbee was turned into a frisbee after he died.
+Mantis shrimp can punch with the speed of a bullet.
