@@ -1,1 +1,1 @@
-created by autocommiter
+A bolt of lightning is hotter than the surface of the sun.
