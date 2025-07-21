@@ -1,1 +1,1 @@
-A bolt of lightning is hotter than the surface of the sun.
+The inventor of the frisbee was turned into a frisbee after he died.
