@@ -1,1 +1,1 @@
-The wood frog can hold its pee for up to eight months.
+Humans are bioluminescent — we glow, but our eyes can’t detect it.
