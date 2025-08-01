@@ -1,1 +1,1 @@
-Pineapples take two years to grow.
+Cows moo with regional accents.
