@@ -1,1 +1,1 @@
-You can’t sneeze with your eyes open.
+Scotland has 421 words for "snow."
