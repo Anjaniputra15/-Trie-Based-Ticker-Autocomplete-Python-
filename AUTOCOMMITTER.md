@@ -1,1 +1,1 @@
-Rabbits can’t vomit.
+Wombat poop is cube-shaped.
