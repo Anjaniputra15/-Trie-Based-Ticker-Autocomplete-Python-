@@ -1,1 +1,1 @@
-A jiffy is an actual unit of time — 1/100th of a second.
+You can’t sneeze with your eyes open.
