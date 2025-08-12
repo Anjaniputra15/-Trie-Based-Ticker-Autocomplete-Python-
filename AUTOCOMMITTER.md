@@ -1,1 +1,1 @@
-The inventor of the microwave received only $2 for his discovery.
+Sea otters hold hands when they sleep to avoid drifting apart.
