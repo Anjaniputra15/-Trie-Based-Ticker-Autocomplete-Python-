@@ -1,1 +1,1 @@
-Sea otters hold hands when they sleep to avoid drifting apart.
+The inventor of the frisbee was turned into a frisbee after he died.
