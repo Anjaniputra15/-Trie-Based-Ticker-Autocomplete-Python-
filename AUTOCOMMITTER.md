@@ -1,1 +1,1 @@
-The word "strengths" is the longest word with one vowel.
+The original London Bridge is now in Arizona.
