@@ -1,1 +1,1 @@
-Octopuses have three hearts.
+Humans are bioluminescent — we glow, but our eyes can’t detect it.
