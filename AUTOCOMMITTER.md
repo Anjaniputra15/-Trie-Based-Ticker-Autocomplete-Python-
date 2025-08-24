@@ -1,1 +1,1 @@
-Elephants are the only animals that can’t jump.
+One spaghetti noodle is called a spaghetto.
