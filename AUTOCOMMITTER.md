@@ -1,1 +1,1 @@
-One spaghetti noodle is called a spaghetto.
+The wood frog can hold its pee for up to eight months.
