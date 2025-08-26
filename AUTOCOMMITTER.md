@@ -1,1 +1,1 @@
-The human stomach gets a new lining every few days.
+The first oranges weren’t orange — they were green.
