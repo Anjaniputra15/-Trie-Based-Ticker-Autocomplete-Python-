@@ -1,1 +1,1 @@
-The hashtag symbol used to be called the pound sign.
+Humans share about 60% of their DNA with bananas.
