@@ -1,1 +1,1 @@
-Octopuses taste with their arms.
+It rains diamonds on Jupiter and Saturn.
