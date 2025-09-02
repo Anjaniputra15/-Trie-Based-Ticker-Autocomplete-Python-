@@ -1,1 +1,1 @@
-The first oranges weren’t orange — they were green.
+Octopuses taste with their arms.
