@@ -1,1 +1,1 @@
-Your taste buds have a lifespan of about 10 days.
+The word "strengths" is the longest word with one vowel.
