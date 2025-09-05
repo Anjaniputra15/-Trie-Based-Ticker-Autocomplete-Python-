@@ -1,1 +1,1 @@
-Pineapples take two years to grow.
+One spaghetti noodle is called a spaghetto.
