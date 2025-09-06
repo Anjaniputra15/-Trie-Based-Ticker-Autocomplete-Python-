@@ -1,1 +1,1 @@
-There are more fake flamingos in the world than real ones.
+Koalas have fingerprints that are nearly identical to humans.
