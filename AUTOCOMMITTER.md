@@ -1,1 +1,1 @@
-A single cloud can weigh more than a million pounds.
+Elephants are the only animals that can’t jump.
