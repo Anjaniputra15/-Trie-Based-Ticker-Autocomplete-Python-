@@ -1,1 +1,1 @@
-It rains diamonds on Jupiter and Saturn.
+Cows have best friends and get stressed when separated.
