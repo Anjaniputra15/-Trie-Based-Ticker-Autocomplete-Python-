@@ -1,1 +1,1 @@
-Water can boil and freeze at the same time — it’s called the triple point.
+Your taste buds have a lifespan of about 10 days.
