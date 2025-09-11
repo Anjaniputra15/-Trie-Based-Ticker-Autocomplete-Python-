@@ -1,1 +1,1 @@
-The inventor of the Pringles can is buried in one.
+Cows can walk up stairs but not down.
