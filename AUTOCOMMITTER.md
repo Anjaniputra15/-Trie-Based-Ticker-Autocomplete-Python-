@@ -1,1 +1,1 @@
-One spaghetti noodle is called a spaghetto.
+Octopuses taste with their arms.
