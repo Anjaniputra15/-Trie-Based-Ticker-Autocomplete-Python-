@@ -1,1 +1,1 @@
-A narwhal’s tusk reveals its health and diet.
+Your fingernails grow faster on your dominant hand.
