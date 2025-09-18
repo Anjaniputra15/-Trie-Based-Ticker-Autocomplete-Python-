@@ -1,1 +1,1 @@
-Cows can walk up stairs but not down.
+The dot over the "i" and "j" is called a tittle.
