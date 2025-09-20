@@ -1,1 +1,1 @@
-The longest hiccuping spree lasted 68 years.
+Sharks are the only fish that can blink with both eyes.
