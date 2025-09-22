@@ -1,1 +1,1 @@
-The longest hiccuping spree lasted 68 years.
+You can’t hum while holding your nose closed.
