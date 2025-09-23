@@ -1,1 +1,1 @@
-A day on Venus is longer than a year on Venus.
+Hot water freezes faster than cold water — it’s called the Mpemba effect.
