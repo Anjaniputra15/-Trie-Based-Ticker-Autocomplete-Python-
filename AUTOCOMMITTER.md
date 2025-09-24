@@ -1,1 +1,1 @@
-There are more stars in the universe than grains of sand on Earth.
+You can’t hum while holding your nose closed.
