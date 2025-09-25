@@ -1,1 +1,1 @@
-The dot over the "i" and "j" is called a tittle.
+There are more stars in the universe than grains of sand on Earth.
