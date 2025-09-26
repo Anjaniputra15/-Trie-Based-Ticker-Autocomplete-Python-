@@ -1,1 +1,1 @@
-Frogs absorb water through their skin — they don’t drink it.
+Bananas are berries, but strawberries are not.
