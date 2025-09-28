@@ -1,1 +1,1 @@
-A human could swim through a blue whale’s arteries.
+Bubble wrap was originally intended to be wallpaper.
