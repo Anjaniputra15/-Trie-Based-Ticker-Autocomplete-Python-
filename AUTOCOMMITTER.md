@@ -1,1 +1,1 @@
-You can’t hum while holding your nose closed.
+A day on Venus is longer than a year on Venus.
