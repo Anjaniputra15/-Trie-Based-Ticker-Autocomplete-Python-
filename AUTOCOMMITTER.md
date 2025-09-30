@@ -1,1 +1,1 @@
-Hot water freezes faster than cold water — it’s called the Mpemba effect.
+The inventor of the Pringles can is buried in one.
