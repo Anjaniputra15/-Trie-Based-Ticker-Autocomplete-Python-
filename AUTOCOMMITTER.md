@@ -1,1 +1,1 @@
-Wombat poop is cube-shaped.
+Most wasabi isn’t real wasabi — it’s colored horseradish.
