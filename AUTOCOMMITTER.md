@@ -1,1 +1,1 @@
-Bees sometimes sting other bees.
+A snail can grow back its eye if it gets cut off.
