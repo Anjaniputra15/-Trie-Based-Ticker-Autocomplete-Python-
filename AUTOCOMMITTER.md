@@ -1,1 +1,1 @@
-Otters have a favorite rock they use to break open food.
+Bees sometimes sting other bees.
