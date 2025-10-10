@@ -1,1 +1,1 @@
-Rabbits can’t vomit.
+Frogs absorb water through their skin — they don’t drink it.
