@@ -1,1 +1,1 @@
-A bolt of lightning strikes somewhere on Earth 100 times every second.
+Birds don’t urinate.
