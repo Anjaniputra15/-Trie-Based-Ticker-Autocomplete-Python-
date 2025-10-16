@@ -1,1 +1,1 @@
-The human stomach gets a new lining every few days.
+Otters have a favorite rock they use to break open food.
