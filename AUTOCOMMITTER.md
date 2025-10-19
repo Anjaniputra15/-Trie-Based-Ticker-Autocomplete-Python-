@@ -1,1 +1,1 @@
-Tigers have striped skin, not just striped fur.
+Tomatoes have more genes than humans.
