@@ -1,1 +1,1 @@
-Tomatoes have more genes than humans.
+The Eiffel Tower can grow more than 6 inches in summer due to heat expansion.
