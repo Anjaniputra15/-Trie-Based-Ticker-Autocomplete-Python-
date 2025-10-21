@@ -1,1 +1,1 @@
-Antarctica is the only continent without reptiles.
+Some cats are allergic to humans.
