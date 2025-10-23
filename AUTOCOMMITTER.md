@@ -1,1 +1,1 @@
-Avocados are toxic to birds.
+You can hear a blue whale’s heartbeat from over 2 miles away.
