@@ -1,1 +1,1 @@
-Water can boil and freeze at the same time — it’s called the triple point.
+Avocados are toxic to birds.
