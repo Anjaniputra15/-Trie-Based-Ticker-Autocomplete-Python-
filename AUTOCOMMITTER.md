@@ -1,1 +1,1 @@
-Coca-Cola would be green without coloring.
+Mantis shrimp can punch with the speed of a bullet.
