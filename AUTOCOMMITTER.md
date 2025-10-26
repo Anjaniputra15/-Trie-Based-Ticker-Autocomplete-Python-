@@ -1,1 +1,1 @@
-The Eiffel Tower can grow more than 6 inches in summer due to heat expansion.
+The tongue is the only muscle in the body attached from one end.
