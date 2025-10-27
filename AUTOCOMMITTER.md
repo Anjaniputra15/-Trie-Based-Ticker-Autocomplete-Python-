@@ -1,1 +1,1 @@
-You can’t sneeze with your eyes open.
+Some cats are allergic to humans.
