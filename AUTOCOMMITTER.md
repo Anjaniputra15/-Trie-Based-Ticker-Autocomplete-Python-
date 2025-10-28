@@ -1,1 +1,1 @@
-Octopuses have three hearts.
+Antarctica is the only continent without reptiles.
