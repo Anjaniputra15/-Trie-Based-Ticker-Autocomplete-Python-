@@ -1,1 +1,1 @@
-The longest hiccuping spree lasted 68 years.
+An apple, potato, and onion all taste the same if you eat them with your nose plugged.
