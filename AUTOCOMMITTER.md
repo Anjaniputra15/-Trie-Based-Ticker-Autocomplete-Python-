@@ -1,1 +1,1 @@
-Mantis shrimp can punch with the speed of a bullet.
+Slugs have four noses.
