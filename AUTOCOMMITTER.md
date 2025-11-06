@@ -1,1 +1,1 @@
-The inventor of the frisbee was turned into a frisbee after he died.
+A narwhal’s tusk reveals its health and diet.
