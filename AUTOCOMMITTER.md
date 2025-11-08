@@ -1,1 +1,1 @@
-Slugs have four noses.
+Wombat poop is cube-shaped.
