@@ -1,1 +1,1 @@
-A snail can grow back its eye if it gets cut off.
+Butterflies can taste with their feet.
