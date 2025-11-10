@@ -1,1 +1,1 @@
-Butterflies can taste with their feet.
+Your fingernails grow faster on your dominant hand.
