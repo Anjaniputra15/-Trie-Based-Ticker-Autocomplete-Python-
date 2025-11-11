@@ -1,1 +1,1 @@
-Cows have best friends and get stressed when separated.
+Bubble wrap was originally intended to be wallpaper.
