@@ -1,1 +1,1 @@
-Chewing gum while cutting onions can help prevent tears.
+Koalas have fingerprints that are nearly identical to humans.
