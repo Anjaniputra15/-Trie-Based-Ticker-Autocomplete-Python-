@@ -1,1 +1,1 @@
-Cows have best friends and get stressed when separated.
+The word "bookkeeper" has three consecutive double letters.
