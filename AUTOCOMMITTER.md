@@ -1,1 +1,1 @@
-A group of porcupines is called a "prickle."
+You can’t hum while holding your nose closed.
