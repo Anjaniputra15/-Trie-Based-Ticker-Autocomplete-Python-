@@ -1,1 +1,1 @@
-Bubble wrap was originally intended to be wallpaper.
+A group of ferrets is called a "business."
