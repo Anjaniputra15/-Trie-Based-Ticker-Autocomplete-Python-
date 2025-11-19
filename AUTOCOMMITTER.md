@@ -1,1 +1,1 @@
-Tomatoes have more genes than humans.
+Chewing gum while cutting onions can help prevent tears.
