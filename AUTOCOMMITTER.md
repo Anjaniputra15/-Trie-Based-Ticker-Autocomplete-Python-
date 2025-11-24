@@ -1,1 +1,1 @@
-Sharks existed before trees.
+Cows have best friends and get stressed when separated.
