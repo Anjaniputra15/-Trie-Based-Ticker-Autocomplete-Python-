@@ -1,1 +1,1 @@
-There are more fake flamingos in the world than real ones.
+Tomatoes have more genes than humans.
