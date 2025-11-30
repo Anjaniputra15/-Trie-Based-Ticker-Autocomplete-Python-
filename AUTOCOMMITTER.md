@@ -1,1 +1,1 @@
-The inventor of the frisbee was turned into a frisbee after he died.
+Butterflies can taste with their feet.
