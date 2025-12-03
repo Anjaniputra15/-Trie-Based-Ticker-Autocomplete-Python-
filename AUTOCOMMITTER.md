@@ -1,1 +1,1 @@
-Bubble wrap was originally intended to be wallpaper.
+Pineapples take two years to grow.
