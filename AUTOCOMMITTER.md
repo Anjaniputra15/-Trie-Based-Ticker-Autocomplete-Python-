@@ -1,1 +1,1 @@
-The shortest war in history was between Britain and Zanzibar — it lasted 38 minutes.
+There are more stars in the universe than grains of sand on Earth.
