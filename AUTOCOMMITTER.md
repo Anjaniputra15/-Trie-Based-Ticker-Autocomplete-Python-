@@ -1,1 +1,1 @@
-You can’t hum while holding your nose closed.
+Pigeons can do math.
