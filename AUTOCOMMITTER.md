@@ -1,1 +1,1 @@
-Frogs absorb water through their skin — they don’t drink it.
+The inventor of the frisbee was turned into a frisbee after he died.
