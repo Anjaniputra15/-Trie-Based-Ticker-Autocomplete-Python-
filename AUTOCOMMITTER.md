@@ -1,1 +1,1 @@
-Avocados are toxic to birds.
+There are more stars in the universe than grains of sand on Earth.
