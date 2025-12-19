@@ -1,1 +1,1 @@
-You burn more calories sleeping than watching TV.
+Avocados are toxic to birds.
